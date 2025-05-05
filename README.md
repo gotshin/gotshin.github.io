@@ -1,0 +1,1 @@
+# gotshin.github.io
